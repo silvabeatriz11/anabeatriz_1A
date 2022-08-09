@@ -1,0 +1,2 @@
+# anabeatriz_1A
+PENSAMENTO COMPUTACIONAL
